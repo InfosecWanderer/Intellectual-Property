@@ -1,2 +1,21 @@
 # Intellectual-Property
 Intellectual Property Management Presentation slides
+
+![image](https://github.com/user-attachments/assets/f07c9cf2-d972-4edd-b225-d63b9a2a98f1)
+![image](https://github.com/user-attachments/assets/056d6c14-15f4-4bd9-8d3d-c30e5a394e40)
+![image](https://github.com/user-attachments/assets/bb8f4081-2809-4938-82cd-838329e9aebf)
+![image](https://github.com/user-attachments/assets/de3e9073-083f-4718-9ecd-32d19e14b95a)
+![image](https://github.com/user-attachments/assets/647abc73-f3bc-41ca-839b-925647b3960d)
+![image](https://github.com/user-attachments/assets/a633e4a0-adaa-4c08-a991-8d5207ad67fc)
+![image](https://github.com/user-attachments/assets/dcd25b8d-e790-40d2-8ed0-9f8aafcdb151)
+![image](https://github.com/user-attachments/assets/450e9486-c6c5-487c-bfcf-9258305566ff)
+![image](https://github.com/user-attachments/assets/4e8d1a44-b7c8-453f-8885-f97a84f95f82)
+![image](https://github.com/user-attachments/assets/444d37b9-6e76-433c-abc5-9b7fec7d2dfa)
+![image](https://github.com/user-attachments/assets/8d0e33d5-0d8c-4202-9ba9-fdd7523dc5f6)
+![image](https://github.com/user-attachments/assets/cc193aca-9308-47d6-b904-9c7171494806)
+![image](https://github.com/user-attachments/assets/5b3a0376-9684-42e0-ae50-cd5fb40d0fed)
+![image](https://github.com/user-attachments/assets/2fbe3668-f230-491b-b436-a83f2da7a383)
+![image](https://github.com/user-attachments/assets/1ce34679-e357-4296-849c-df83537f6118)
+![image](https://github.com/user-attachments/assets/882a45c9-71c3-46d7-b1a7-7741c492f1b0)
+![image](https://github.com/user-attachments/assets/450c82b9-6cd6-405d-b74a-c6639b82c9e4)
+![image](https://github.com/user-attachments/assets/a8cacfc6-b0eb-4080-80b0-0f220baf5f03)
